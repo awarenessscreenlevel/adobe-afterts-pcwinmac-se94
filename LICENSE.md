@@ -1,4 +1,4 @@
-# 
+# Automatique Adobe After Effects extensions pour Mac OS | Turbo Adobe After Effects extensions pour PC Windows. Avec bibliothèque d'effets et file d'attente de rendu — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
